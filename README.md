@@ -1,3 +1,3 @@
 # INNOEcoSystem
-![Uploading image.png…]()
+![Uploading image.jpg…]()
 
